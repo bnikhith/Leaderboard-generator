@@ -8,5 +8,5 @@ I was volunteering for a quiz conducted, where responses are collected by google
 
 No matter how simple it is or already it is made ready for use by someone else. For an average under graduate like me, applying it in real time scenario gives an immense zeal to work further on stuff like that and some "favouritism" :P .  
 
-*** Win-Win Situation for entertainment and knowledge *** . 
+*** Win-Win Situation for entertainment and knowledge ***   
         Fun to do.. Stuff to learn..
